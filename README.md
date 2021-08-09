@@ -1,5 +1,4 @@
 ### Hii👋
-📫 How to reach me: twitter , linkedin
 😄 Pronouns: She/Her
 
 
