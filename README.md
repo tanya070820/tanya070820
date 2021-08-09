@@ -1,4 +1,8 @@
 ### Hii👋
+📫 How to reach me: twitter , linkedin
+😄 Pronouns: She/Her
+
+
 
 <!--
 **tanya070820/tanya070820** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
