@@ -1,6 +1,6 @@
 ### Hii👋
 😄 Pronouns: She/Her
-📫 How to reach me:www.linkedin.com/in/tanya-bhatnagar-4aba221a2 
+
 
 
 <!--
